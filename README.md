@@ -18,7 +18,7 @@ Dynamic Electronic and Electrical Engineer with a proven track record in designi
 
 ## Education
 
-**Bachelor of Science, Electronic and Electrical Engineering (Second Class Upper)**
+**Bachelor of Science, Electronic and Electrical Engineering**
 Obafemi Awolowo University, Ile-Ife, Osun  
 *April 2017 to December 2023*
 
